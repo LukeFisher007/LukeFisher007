@@ -2,7 +2,7 @@
 - 👀 I’m interested in chess, pokemon and magic
 - 🌱 I’m currently learning machine learning on codeacademy
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me: whatsapp 066 218 9466
+- 📫 How to reach me: luke007f@gmail.com
 - ⚡ Fun fact: Ive been playing chess since i was 5 years old
 
 <!---
